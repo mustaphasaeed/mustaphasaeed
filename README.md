@@ -1,1 +1,7 @@
-"# mustaphasaeed" 
+I am an experienced Cloud and DevOps professional with a rich history of completing remote and freelance work or a variety of international tech companies, ranging from short-term small projects to multi-year complex tasks. I enjoy being able to focus on a specific organisational objective, and hit project milestones consistently. 
+	
+Over the last 15+ years I have worked on numerous projects, large and small, delivering consistently high-level results through diligent workmanship and innovative thinking when it comes to problem solving. I am innately commercially astute and consistently combined increased experience results with cost savings and increased performance.   
+
+I believe my biggest strength is communication, I have consistently managed the disparate goals of many internal and external stakeholders and used communication as a tool to create cultures of continuous improvement. I enjoy building a rapport with different people and making them value the impact of the work we are undertaking. I believe my wide ranging experience, combined with my strategic thinking and leadership skills sets me apart from other candidates and guarantees I would be successful in this position. 
+
+I look forward to elaborating on how my specific skills and previous experience are well-suited to this position. Please contact me at +61 481 263 724 or via email at mustapha.a.saeed@gmail.com to arrange for a convenient meeting time.
