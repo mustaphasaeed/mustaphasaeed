@@ -6,7 +6,7 @@ Over the last 15+ years, I have worked on numerous projects, large and small, de
 
 I believe my biggest strength is communication, I have consistently managed the disparate goals of many internal and external stakeholders and used communication as a tool to create cultures of continuous improvement. I enjoy building a rapport with different people and making them value the impact of the work we are undertaking. I believe my wide-ranging experience, combined with my strategic thinking and leadership skills, sets me apart from other candidates and guarantees I would be successful in this position. 
 
-I look forward to elaborating on how my specific skills and previous experience make me well-suited to this position. Please contact me at +61 481 263 724 or via email at mustapha.a.saeed@gmail.com to arrange a convenient meeting time.
+I look forward to elaborating on how my specific skills and previous experience make me well-suited to this position. Please contact me at mustapha.a.saeed@gmail.com to arrange a convenient meeting time.
 
  **I am open to**:
 
